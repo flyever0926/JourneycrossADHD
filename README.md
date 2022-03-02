@@ -1,4 +1,4 @@
-# crossADHD.github.io
+# crossADHD
 Just wanted to discuss my struggle with ADHD and depression
 <title> How to deal with someone who always think ahead of himself/herself?</title>
 
